@@ -4,7 +4,7 @@
 **Also available :**
 
 
-[cromwell.nz](https://cromwell.nz)
+[centralotago.nz](https://centralotago.nz)
 
 
 **Contact :**
