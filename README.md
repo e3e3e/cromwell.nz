@@ -10,5 +10,5 @@
 **Contact :**
 
 
-[cromwell.centralotago@gmail.com](mailto:cromwell.centralotago@gmail.com)
+[domains@abcd.nz](mailto:domains@abcd.nz)
 
